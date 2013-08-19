@@ -1,0 +1,26 @@
+Lessons from my Father
+======================
+                    
+I lost my father few weeks back.
+
+As I reflect back, I realized that the question around me was, “What happened? How did he die?”
+
+While what I was actually constantly thinking and recollecting was, “How he lived?” The first question only made me feel sadder for it focused me to think of the loss. The second question made me think of all his positives characteristics, all the values held dear by him, all the virtues extolled by him and the simple lessons he gave to us as a father and as a fellow human being. It made me focus on my gains. For in everything we lose we gain something (and for everything we gain we lose something)
+
+As I start to think about my childhood with my father, I draw a blank. I remember no memories of what people call ‘quality time’ spent with him. No memories of his telling me stories, playing cricket with me, no making me roll with laughter, no hugs, no excitement over the models that I made, no involvement with my studies and lessons, and the list continues.
+
+But what I also don’t remember - any memories of admonishing me, of making me feel little, of constantly telling me what to do. No instruction filled days, no “study now”, “play now”, no ‘why didn’t you come first in the class’; no “how many times have I told you”, no ‘why can’t you be less shy and talk to my friends when they come over”, no “why do you spend so much time playing alone”, ……….. no NOs.
+
+It is truly amazing that eschewing expectations and exhibiting acceptance came so naturally to him. An approach which many parents now (when I take parenting workshops) not only believe is very difficult but consider too idealistic. Perhaps we take our parenting too seriously, perhaps we are too anxious over our child upbringing, perhaps we are too keen that our child becomes successful (sometimes even when she is just five years old).
+
+What this invariably led to is that my father gave us a lot of independence. And the only way to make a child independent is by giving independence. Best thing is that you get confidence as a healthy by product. As an example at the age of thirteen I made my first across the country train journey with just my brother for company (four years older then me) and two years later a solo train journey.
+
+When parents stop saying “study study study”, but rather focus on giving whatever support children require to do so, children invariably study. Instead of saying “I know when and how you should study”, my father showed how the approach of “I am there IF you need me” works far better with children. The responsibility remains with the child, the child is respected for his struggles and the child learns how to tap the resources inside him. What wonderful gifts my father gave me!
+
+My father was a doer and all along his life he constantly showed that nothing was out of reach if you tried. While he was a doctor, he tried all kind of things – he did farming of mushrooms, he did bee keeping, he traveled into remote corners of the country, et al. He didn’t lecture us that we should DO, he simply showed us by doing. In fact I don’t even recollect one lecture on our behavior, or on our goals, or on our achievements. He simply went ahead in his life modeling. Still always having time for us, to explain to us why he did something, how he did it and what satisfaction he got from it. Isn’t parenting a lot about modeling anyway!
+
+The last important lesson he taught us was that “Best is often the enemy of Good.” It never worried him if his tennis shots were not masterly, or that his flower beds were not completely weed free or that his prescription was not immediately adhered to by his patients. He was only absorbed in being and doing good. The fact the he may not be best neither frustrated him nor came in his way from doing something. The same he held true for his children. Whether it was a competition or a hobby or performance in school, he never expected us to be the best. He just wanted us to be good and to keep working towards being better. Isn’t that what progress is all about. The result: in a society which is dying to get the first prize, where comparison with neighbors dominates daily desires, his children learned to be internally focused and progress oriented. Another beautiful gift!
+
+While my father has moved on with his last transfer (where we all will join him inevitably) this is the perspective he left us with: ‘Somehow it doesn’t matter what you do on a daily basis with your child or what kind of time you spend. Perhaps what’s more important is what kind of emotional environment you give to your child – the mind set you offer’.
+
+Think about it!

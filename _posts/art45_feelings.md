@@ -1,0 +1,43 @@
+All feelings are OK
+===================
+                    
+Are all feelings okay?
+
+What about every time I cried when I was a child and I was asked to not to cry and smile? I should not be sad? 
+
+Ask me - As a child I cried but would not tell others. I was even ashamed of crying. Finally I stopped crying and I lost touch with crying. 
+
+Now when I want to vent out my emotions I am blank – I have forgotten how to cry. Unfortunately I have not learnt any other way of expressing my feelings.
+
+Anger is not good – you should not be angry. But what about when I get angry and I actually need to express. Either I feel suffocated if I do not express or I feel guilty when I burst out?
+
+What I missed in my childhood was ways of understanding and managing my emotions. I just tagged myself as "an emotional person" not even knowing what it meant!
+
+Today, I am successful adult – so my incapability to express my feelings have not hindered my success. 
+
+REALLY, is this true - am I really successful; am I happy!
+
+Ask me, I have struggled everyday to cope up with my emotions. Happiness most often becomes a mirage. Now people tag me as an "too emotional person"!
+
+If you can relate with my story – let this not happen to your child. Let us together give this gift of ‘FEELINGS” to our kids.
+
+The gift of knowing, understanding, expressing and living life out of feelings, not driven by feelings. Of valuing the importance of feeling. Of being called as an "emotionally balanced person".
+
+Lets start at the very beginning: that ALL feelings are OK.
+
+Yes actions may not be so appropriate. I can feel angry but, to hit somebody when I am angry, need not be appropriate. But still my anger in itself is acceptable, is normal, is just a feeling - hence it is okay!
+
+I can feel sad – but throwing a tantrum may not be acceptable. But feeling sad is fine, acceptable, normal. There is no need to hurridly get me to smile. Being sad for time is fine. Its just a feeling, and feelings change, so this too shall pass away. Its ok to be sad.
+
+When somebody acknowledges and accepts my feelings they empathize with my feelings. I then feel understood. When I am angry relate to me by saying "you look angry" - do not tell me anger is bad or a lecture on what is right or wrong. Moreover, instead of giving me solutions - give me understanding of feelings. Instead of judging me, connect with me by asking "You must be feeling terrible". 
+
+TRY doing this with your child next time he is sad over not able to go out. Instead of telling him to just cheer up, instead of making him feel that its not okay to be sad, just say "you look sad; you feel like going out". Say this few timers, show acceptance of child's emotions and then see the magic.
+
+Given understanding, I can stand - up!.I can accept my own feelings. This helps me understand them and leads to ways of managing the.
+
+All feeling are OK.
+
+I am OK.
+
+When I am okay, my actions are mostly okay - controlled - rather self regulated. 
+Isn't my need the true global need - of every individual on this planet ~ “to be understood”. 

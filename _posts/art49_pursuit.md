@@ -1,0 +1,55 @@
+In Pursuit of Happiness
+=======================
+
+The speakers in my car blared:
+
+	"Haton me ghari 'Rado' ki, perfume 'Gucci' wala,
+	But Pappu can't dance sala"
+ 
+The essence of these lines (and the whole song) is indeed profound:
+
+We may have the best of everything, but happiness, the ability to enjoy life, eludes many of us.
+
+The song gains special significance, keeping in mind that umpteen parents have expressed that they want for their children to be happy in life.
+
+But according to us - we cannot 'get' happiness. We can only 'be' happy. That's all. Wherever we are, whatever we have, whoever we become.
+
+I am reminded of cute story i read somewhere: A little kitten is going round and round in circles, trying to catch its tail. Mumma cat inquires her of this behavior. The kitten replies, "I have figured out that, for a cat, happiness lies in its tail - so I'm trying to 'catch' happiness".
+
+The wise mumma cat smiled and replied, "True my dear, for cat happiness lies in its tail, but if we go after it, we are never able to 'catch' it. However, if we go about our business, the tail and happiness simply follows us!
+
+Given the presumption that we cannot 'get' happiness; that we can only 'be' happy, one wonders why:
+
+~ So many of us push children for performance, achievement, success, et al?
+
+~ So many children instead of 'enjoying' learning are instead being pushed into the drudgery of being taught. Right from schools, to homes, to tuition and even sports.
+
+~ So many of us lure (and then habituate) children into the 'comparison' trap.
+
+~ Why can't we let children be (what they are)? - why do they need to constantly become (something or somebody)?
+
+I am wondering, if one were to want one's children to be happy in life, then why would one wish, train and push one's child into the becoming a rat in the rat race? Maybe i am missing some basic insight here :-!
+
+To me children, by nature's design, know how to be happy. They can play endlessly without any material, they can learn endlessly without any pressure, they can enjoy endlessly without any expectation.
+
+Once when i was with a group of 6 to 7 year old children, one of them said to me, in a loud voice for everybody in the group to hear, "Uncle I am bored".
+
+My response, with a big smile was, "Good, that's good for you".
+
+He was surely perplexed with my response, "Uncle how is it good for me"? he inquired. 
+
+I said, "Surely, if you are already bored, you cannot get bored, right. You can however, start enjoying yourself now, make your time fun. So its good for you".I dunno how much of my logic he understood, but surely he started enjoying himself again :-)
+ 
+If by any chance, your wish for your child is that he or she be happy in life - now and in future, then my invitation is to ponder over these questions (and do share your responses with us all):
+ 
+Q1: How am I training my child to be happy in life? Or, how am I (subconsciously) training my child to be unhappy in life?
+
+Q2: What are my expectations from my child? What are the child's expectations for himself or herself? Do these move towards or away from happiness?
+
+Q3: What kind of 'happiness role modeling' I do for the child? Am I a happy person (or just doing my daily grind)? Do i constantly 'blame' others or circumstances as reason for my unhappiness? Do I look to 'getting' happiness from somewhere or somebody? Am i one of those Pappu-who-can't-dance?"
+
+Further, How, on a daily basis I show and share my happiness? Am I unhappy  with - job, boss, colleagues, relatives, traffic, maids, money, banks, suppliers, spouse, etc? If yes, what am I doing to "be happy" and in turn bring happiness in my family life.
+
+Q4: What role does emotional competence play in me being happy or atleast being in harmony, at peace? If this is important, then how am I helping and guiding my child to be emotionally more competent? Am I emotionally competent? How?
+
+Q5: What will it do to my child, (and to me) if i were to relieve my child (and even myself) the "burden" to be happy? What will it do to my child, if we were to follow the advice of the wise mumma cat?

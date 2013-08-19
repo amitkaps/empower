@@ -1,0 +1,41 @@
+Peers: Fear or Dear
+===================
+                    
+I have a crisp 100 rupee note, do you want it?
+
+Yes
+
+Now if I crumple it, you still want it?
+
+Yes
+
+I stamp on it with my shoes, you still want it?
+
+Yes
+
+I soil it as much as I can, you STILL want it? 
+
+Yes 
+
+Your answer remains YES because whatever I did to the note, 
+the value still remained the same - Rs100 INTACT. 
+
+Whatever anybody says or does to us our intrinsic value remains unchanged
+- it is determined only by what is inside us. 
+
+This great lesson we need to carefully pass on to our children. 
+
+This is because while we can fine tune our parenting, the next biggest
+influence on their self-esteem comes from their friends and peers.
+
+As they grow, children become increasingly sensitive to the evaluations of their peers. Furthermore, as children interact with their peers or learn to function in school or some other place, they may feel accepted and liked one moment and feel different the next. Also they may begin to evaluate themselves differently from the way they were taught at home. They even start questioning the values once held sacrosanct at home.
+
+Let’s see what we can do to ease this peer pressure vis-à-vis self-esteem: 
+Accept their friends - even encourage them. Just as with our children, let’s avoid judging the company they keep. By dictating which companyto keep and which to avoid, we are questioning our child's judgment. Wouldn't it be better if we educate them to discern good from bad themselves? Even if we have to, let’s point only the actions of the other child 
+that are unacceptable, not label them as good or bad.
+
+Children are quite vulnerable to teasing, bullying, etc., by peers.
+
+While this is a test of self-esteem built at home, this pressure can sometimes start eroding it.  Avoid panic, protecting and pulling your child out of it. Instead, first make her understand why others might be doing so and together work out a strategy to cope up with it. Base this strategy on your child's strengths. I used to be pushed around in my school bus. Then one day, I started showing a magic trick to others. Next day another one. Puzzles, teasers, et all followed everyday and boy, did I become wanted. My strength (analytical skills) became stronger, my self-esteem grew. Bullying stopped, my self-esteem grew. 
+
+The other self-esteem breaker is comparisons: "He is the captain of the cricket team, I am nobody". Build in your child that we are all unique. Just As "A" will be the first choice if we are making a cricket team, "B" will be the first choice if we are doing a drama, "C" for writing a story and "D" for painting. There is a unique spark in each one of us and hence it is unfair to compare. Often criticism from peers becomes self-criticism. Keep a sharp ear for self-criticism and quash it then and there. Your silence may be taken as acceptance. Also, let them accept criticism of actions, but not of their capability. Obviously, keep communicating, listening and supporting. And tell them that each one of us is like a hot air balloon: we may be of different shape, size, color etc.,but it is WHAT IS INSIDE US that takes us UP IN LIFE! 

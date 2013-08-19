@@ -1,0 +1,34 @@
+Emotional Empowerment
+=====================
+                     
+The biggest mistake we do with children is to LIMIT them.
+
+Somewhere we think that we know how much my child can achieve and we only expect that out of our child.
+
+We communicate to the child, in many different ways, that since you are a child, you are not capable of, beyond this limit.
+
+But a kite can fly only as high as we are ready to leave the string.
+
+The most frequently misjudged area is this regard is Emotional capabilities. Not only our understanding of EQ is limited, we think children's ability to understand and manage emotions is limited.
+
+Let us give you an example to illustrate the contrary:
+
+The other day, a two and half year old in our preschool was crying (standing at one place) because she had lost her bag. She was making no effort to search for her bag.
+
+While most people would try and pacify a child of that age and would help her find her bag, we followed an emotional empowerment approach.
+
+We asked her, "How will crying help you find your bag?"
+
+Remember she is just 2.5 yrs old!
+
+It’s not surprising that we had to repeat this question a good ten times, but the effect was terrific.
+
+She had soon stopped crying and herself started looking for her bag. The best thing about this approach was that while we were not sure whether she was capable of managing her crying and of finding her bag, we did not want to limit her by our judgment of the same! The result was truly surprising and reassured us of the following maxims:
+
+1. Children live up the expectations we set for them - put no bar and they soar!
+
+2. Emotional intelligence is not something that children need to learn, they actually JUST need to DISCOVER (its already in them)
+
+3. Emotions form our basic operating system - it determines our thoughts and action and, hence even if we do not like it, children are all the time living out of them, managing them, albeit not necessarily the most optimally.
+
+Isn't then emotional quotient something that directly determines our happiness, our health, and our how beautifully we live our life. Shouldn't Emotional Empowerment be an integral part of our child's development and learning? Think how are you making your child emotionally stronger!. 

@@ -9,38 +9,26 @@ body {
     font-family: georgia, times, serif;
     font-size: 16px;
     line-height: 1.6em; 
+    background-image: url('../img/linedpaper.png');
     color: #666;
-    background-color: whitesmoke;
 }
 
 header {
   width: 20%;
   position: fixed;
   top:0;
-  left:0;
+  right:0;
   height: 100%;
   padding: 100px 50px 50px 50px;
-  background-color: #222;
+  background-image: url('../img/wild_oliva.png');
   color: #AAA;
 } 
 
-#container {
-    /*max-width: 768px;*/
-}
-
 #main {
-    margin-left: 30%;
-    /*min-height: 400px;*/
+    margin-right: 30%;
     line-height: 1.4em;
     padding: 100px 50px 50px 50px;
-    max-width: 640px;
-}
-
-.djembe {
-  font-family: djemberegular, courier, monospace;
-  font-size: 32px;
-  line-height: 0.5em;
-  color: green;
+    max-width: 700px;
 }
 
 a {

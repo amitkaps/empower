@@ -2,6 +2,7 @@
 layout: chapter
 title: Responsibiilty
 permalink: responsibility
+category: parent
 ---
  
 A mother who herself was not too well educated was quite worried that her son refused to do homework and studies. Complains poured from school and the mother tried all the tricks from bribing to punishing but to no avail. Flustered, the mother, while having no clue as to how, yet told her son that she will help in his homework and study.

@@ -2,15 +2,16 @@
 layout: chapter
 title: Number One Parenting Tool
 permalink: parenting
+category: parent
 ---
 
-Whenever you think, do you think in terms of questions or in terms of statements?Have you ever asked a question without first thinking for possible answers? When somebody tells you something, its possible to ignore it. But when somebody asks you a question, can your mind ignore thinking about it?Why is this so?
+Whenever you think, do you think in terms of questions or in terms of statements? Have you ever asked a question without first thinking for possible answers? When somebody tells you something, its possible to ignore it. But when somebody asks you a question, can your mind ignore thinking about it?Why is this so?
 
 Ladies and Gentleman, Mothers and Fathers, presenting the ultimate panacea,the ultimate disciplining, learning and teaching tool, an amazing language thatleads to higher intelligence. A language common to all great thinkers and leaders,from Socrates to Einstein.
 
-Chuck out the useless “T” language – tell them, tell them, tell them, and thenwonder why they don’t get it! Tune in the new “Q” language – ask them, let them ponder, decide, answer and you would wonder why you didn’t do moreof this before.
+Chuck out the useless “T” language – tell them, tell them, tell them, and then wonder why they don’t get it! Tune in the new “Q” language – ask them, let them ponder, decide, answer and you would wonder why you didn’t do moreof this before.
 
-Child doesn’t go to sleep easily: Try asking questions, “Why do you think it’simportant to take a nap? How will you benefit from a good sleep? What can you (or I) do so that you can sleep easily?”
+Child doesn’t go to sleep easily: Try asking questions, “Why do you think it’s important to take a nap? How will you benefit from a good sleep? What can you (or I) do so that you can sleep easily?”
 
 Child doesn’t wash hands before eating: Try Asking questions, “Why do youthink we should wash hands before eating? How will this help you? Do we need to wash it everyday? Why?”
 
@@ -38,25 +39,20 @@ Questions mean possibilities, choices and that is much more interesting then com
 
 Questions help clear conflicts by giving the child a voice of his or her own. It thrills them that they are heard.
 
-
 They not only own the choice, they own the consequence.
-
 
 They learn to think creatively, values take ground, concepts get clear.
 
-
-Questions don’t focus on mistakes; they look forward, not backwards.(You have to avoid “Why” questions – see Newsletter no.14 - Dated: 21st June 01)
-
+Questions don’t focus on mistakes; they look forward, not backwards. You have to avoid “Why” questions.
 
 Any thinking they do, further stimulates the brain to think, to become alive.That is a good feeling, which usually multiplies.
 
-
 It makes them teller, and you listener.
-
 
 IT IS SO SIMPLE TO DO.
 
-
 Under "Genie Worth-it" below we provide a string of questions that can actually change the whole atmosphere (and your relationship) in your home. Try them.
-Also when the child finally answers the question by “I don’t know’ – chances arethe child has opened a window for you to provide an answer. Let’s not be greedyhere – so keep the answer short 
+
+Also when the child finally answers the question by “I don’t know’ – chances are the child has opened a window for you to provide an answer. Let’s not be greedyhere – so keep the answer short 
+
 A good question is never answered. It is not a bolt to be tightened into place but a seed to be planted and to bear more seeds toward the hope of greening the landscape of mind.” (John Ciardi)

@@ -2,6 +2,7 @@
 layout: chapter
 title: Respect - Fundamentals of Disciplining
 permalink: disciplining
+category: self esteem
 ---
 
 It was time for children to leave for home. A mother, who had come to pick up her daughter, came to me with her daughter and asked, "What makes you work with children, what makes you 'tick' with them". I was about to say my standard answer, "Because I love them". However suddenly the child tugged her mother's dress and said, "Mamma lets go". The lady turned to her child and in a curt voice reprimanded her, "can't you see I am talking to Uncle, how many times have I told you not to interrupt when I am talking to elders. Bad manners"

@@ -2,6 +2,7 @@
 layout: chapter
 title: Alternatives to Punishment
 permalink: alternative2
+category: discipline
 ---
 
 Situation 1 - What would you do if your 7-year-old snatched away the toy from your 1-year-old and left him crying?

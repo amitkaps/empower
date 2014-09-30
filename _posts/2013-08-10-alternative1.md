@@ -2,6 +2,7 @@
 layout: chapter
 title: Alternatives to Rewards and Punishments
 permalink: alternative1
+category: discipline
 ---
 
 Few days back I visited an office and started complaining to the girl at the front desk about the bills that I had not received, about which I had reminded her number of times. At that moment, her boss came, and I redirected my complaining to him. He immediately assured me that the bills will be sent by evening and informed me that it was he who had delayed them.

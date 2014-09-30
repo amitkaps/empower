@@ -2,6 +2,7 @@
 layout: chapter
 title: Resourceful parenting, Resourceful kids
 permalink: resourceful
+category: parent
 ---
 
 A parent had come to Geniekids with her three and half year old son and his elder daughter. While checking around the resource center, the boy saw what looked like a box of jigsaw puzzle to him. He insisted to his mother that he wanted to do the puzzle in Geniekids. The mother first tried convincing the son that they would come other time, but the son’s adamancy was increasing. Sensing a confrontation, she whispered a request me, to tell her son that Geniekids does not have any puzzle!I immediately got up and spoke loudly, “No mam, I cannot tell a lie to the children” and then I turned to the boy and said, “Yes dear, we do have puzzles here. But your mother wants to go home now. Why don’t you go home, draw a picture, cut into many pieces and give it to your mummy to solve?”Both the kids liked this idea and soon were excitedly discussing what they will do, while wearing their shoes to go home.

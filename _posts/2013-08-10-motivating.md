@@ -2,6 +2,7 @@
 layout: chapter
 title: Motivating without Motivating
 permalink: motivating
+category: habits of mind
 ---
 
 “I like logic and reasoning, but I prefer a gun” (From the movie – The Godfather)

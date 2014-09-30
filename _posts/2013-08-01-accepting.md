@@ -2,6 +2,7 @@
 layout: chapter
 title: Expecting or Accepting
 permalink: accepting
+category: play and learn
 ---
                     
 Mrs Sujatha from Bangalore wrote:

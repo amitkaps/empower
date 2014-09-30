@@ -2,6 +2,7 @@
 layout: chapter
 title: I am Responsible
 permalink: responsible
+category: habits of mind
 ---
 
 “You drive me crazy”“Your habits irritate me”“Mummy is disappointed when you don’t finish the food”

@@ -2,6 +2,7 @@
 layout: chapter
 title: Strengths
 permalink: strengths
+category: habits of mind
 ---
 
 Hashid came and complained to Rabbi that certain persons were turning night into day playing cards. “That is good” said Rabbi. “Like all people they want to serve God but don’t know how. But now they are learning to stay awake and persist in doing something. When they have become perfect in this, all they need to do is turn to God - and what excellent servants they will make for him then!”

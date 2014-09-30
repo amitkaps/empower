@@ -2,6 +2,7 @@
 layout: chapter
 title: How to Help Discover Child's True Potential
 permalink: potential
+category: play and learn
 ---
 
 Dear parents - the following article is based on a real conversation. Do see if it rings some bells for you?

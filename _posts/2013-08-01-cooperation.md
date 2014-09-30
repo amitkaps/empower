@@ -2,6 +2,7 @@
 layout: chapter
 title: Comparison or Cooperation
 permalink: cooperation
+category: self esteem
 ---
 
 Situation A

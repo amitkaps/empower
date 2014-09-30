@@ -2,6 +2,7 @@
 layout: chapter
 title: 98% Instruction, 2% Inspiration
 permalink: instruction
+category: communication
 ---
 
 Morning 7am to night 11 pm:

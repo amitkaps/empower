@@ -2,3 +2,7 @@ name: "Empower - Amable Book"
 description: "Empower your Child"
 
 permalink: pretty
+markdown: kramdown
+
+kramdown:
+  input: GFM

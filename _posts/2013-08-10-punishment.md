@@ -2,12 +2,10 @@
 layout: chapter
 title: Is Reward a Punishment
 permalink: punishment
+category: discipline
 ---
 
-"An old hunchback was constantly teased and abused by the neighbor-hood children. One day he told them that each will get Rs10 for teasing and abusing him for one hour every day.
-Kids were overjoyed and did the worst teasing and abusing possible. The next day the old man informed that now onwards they would be getting Rs 5 per day for their job. Still kids were happy and did their job well. The next day the old man revised the rate to Rs 2 and children were clearly disappointed. Some dropped out.
-
-Finally the next day the old man made it Rs 1/- and all the children stopped teasing and abusing. They felt Rs1/- was too low for their hard work!"
+"An old hunchback was constantly teased and abused by the neighbor-hood children. One day he told them that each will get Rs. 10 for teasing and abusing him for one hour every day. Kids were overjoyed and did the worst teasing and abusing possible. The next day the old man informed that now onwards they would be getting Rs 5 per day for their job. Still kids were happy and did their job well. The next day the old man revised the rate to Rs 2 and children were clearly disappointed. Some dropped out. Finally the next day the old man made it Rs 1/- and all the children stopped teasing and abusing. They felt Rs. 1/- was too low for their hard work!"
 
 Next time, before you offer your child a reward for a certain 'good' behavior, think about this story.
 

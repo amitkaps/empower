@@ -2,6 +2,7 @@
 layout: chapter
 title: Considering Concentration
 permalink: concentration
+category: habits of mind
 --- 
 
 My first encounter with concentration was when a yoga teacher asked me to close my eyes and concentrate on my breathing ONLY. Thirty seconds, and I was already thinking all kinds of thoughts, far away from any type of concentration. 

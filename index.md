@@ -3,10 +3,15 @@ layout: default
 ---
 
 <div>
-  {% for post in site.posts %}
-      <a href="{{ post.url }}"><h2>{{ post.title }}</h2></a>
-      {{ post.content | truncatewords:50 | strip_html }}
-      <br/>
-      <br/>
-  {% endfor %}
+	{% for category in  site.categories  %}
+        <h2 id="{{ category | first }}">{{ category | first | capitalize}}</h2>
+        {% assign cat = category | first %}
+        {% for post in site.posts %}
+        	{% if post.category == cat %}
+			<ul class="widget">
+				<li><a href="/{{ post.permalink }}">{{ post.title }}</a></li>
+			</ul>
+			{% endif %}	
+		{% endfor %}
+	{% endfor %}
 </div>

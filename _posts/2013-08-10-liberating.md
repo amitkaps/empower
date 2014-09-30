@@ -2,6 +2,7 @@
 layout: chapter
 title: Liberating Success
 permalink: liberating
+category: habits of mind
 ---
 
 Baby elephants are tied with a chain to a pole. At that age they cannot break the chain, so they stay put. When the same elephant becomes an adult, it is still tied with the same chain. Although the adult elephant can easily whack the chain and break it into pieces, this idea just doesn’t strike the elephant and his trainers are effectively able to control him.

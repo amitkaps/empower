@@ -2,6 +2,7 @@
 layout: chapter
 title: Understanding
 permalink: understanding
+category: parent
 --- 
 
 A farmer had some puppies he needed to sell. As he was putting the sign ‘Puppies for sale’, he felt a tug and looked down into the eyes of a little boy.

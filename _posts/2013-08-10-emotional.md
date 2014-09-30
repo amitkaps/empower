@@ -2,6 +2,7 @@
 layout: chapter
 title: Emotional Needs of a Child
 permalink: emotional
+category: feelings
 ---
 
 The washing machine repair guy, the music system service center and my LCD projector service person all made the same remark. They said, in different words, that my "old" machine is really good, they don't make it like this (rugged and stable) any more. Today's machines require to be junked in just few years, while my old one is good for still many more years!

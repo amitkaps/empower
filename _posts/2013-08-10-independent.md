@@ -2,6 +2,7 @@
 layout: chapter
 title: Responsible Independent Children
 permalink: independent
+category: habits of mind
 ---
 
 Responsibility educates; Independence inculcates.
@@ -12,7 +13,7 @@ Let me give you a common example I give to many parents. If a child asked you fo
 
 In this almost insignificant interaction we have communicated to child three very significant pointers:
 
-The child is independent –She can do things on her own!
+The child is independent – She can do things on her own!
 The child is responsible for her needs (and hence her actions). I am not going to help her with what she is supposed to do herself – she got to do it herself.
 The child is capable - She has the capacity to fulfill her needs (at least most of them).
 The best part is that I will repeat this with the child in every interaction I have with the child. The child soon realizes “who is in-charge” – i.e. the child herself and automatically she starts responding to this new autonomy.

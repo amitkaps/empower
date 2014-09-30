@@ -53,3 +53,10 @@ In What other ways could we solve this problem?
 What do you need to do to get where you would like to be?
 How can you do this better? Why would you like to do this better? Why was doing this work excellently so important to you?
 AND WHAT DO YOU THINK WILL HAPPEN THEN? {this can be asked as a follow-upto any string of questions for us far out into time as the child can conceive at his age.}
+
+The mother was thinking, "I see the value of the questions - just nto sure how the chidl will reply?"
+"The key idea is not the answer", I clarified to her, "It is the question itself. In fact we are not asking to listen to an answer - we are asking so that the child can think - right now, little later, and even much later".
+
+Just as I would like you to think about what all we discussed today - when, what and how much you think is your choice. In any case you explore your potential as a parent!
+
+Ha, Ha, Ha ... our meeting ended amidst some laughter and loads of thoughts.

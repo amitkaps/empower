@@ -43,20 +43,13 @@ Then you must visit our center - where whether its two year old in the pre-schoo
 
 "Most of us at some time or the other are struggling, simply because we are trying to change the child - that’s swimming against the flow - but once we align our efforts to a child's natural way of working and growing its muchless effort."
 
-”Okay”, said the mother, “but you also promised me some more examples ofquestions?”
+”Okay”, said the mother, “but you also promised me some more examples of questions?”
 
 Yes, here are some of the learning questions we constantly ask:
 
-What do you feel are your greatest attributes/ strengths?
-What do you think we should do?
-In what ways could I be most helpful to you right now?
-How do you think you'll feel if you do that?
-What will likely happen if you do that? Are those the results youwant most?
-How do you think so-end-so will feel if you do that?
+"What do you think we should do? and this question followed by questions like
+What will likely happen if you do that? Are those the results you want most?
 In What other ways could we solve this problem?
 What do you need to do to get where you would like to be?
-How can you do this better? Why would you like to do this better?Why was doing this work excellently so important to you?
-What do you like in your friends? Would you like to have all thosepositive qualities in you? How will you develop them?
-In what ways will you like to be different to your father/ mother? Inwhat ways similar?
-How can you achieve something today that you will be proud of? Whatwill that be? What did you achieve today that you are proud of?
+How can you do this better? Why would you like to do this better? Why was doing this work excellently so important to you?
 AND WHAT DO YOU THINK WILL HAPPEN THEN? {this can be asked as a follow-upto any string of questions for us far out into time as the child can conceive at his age.}

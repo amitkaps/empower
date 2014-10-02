@@ -3,21 +3,22 @@ layout: chapter
 title: I am Responsible
 permalink: responsible
 category: habits of mind
+published: true
 ---
 
-“You drive me crazy”“Your habits irritate me”“Mummy is disappointed when you don’t finish the food”
+“You drive me crazy”. “Your habits irritate me”. “Mummy is disappointed when you don’t finish the food”
 
-The issue with the above statements is, while we are expressing our feelings,we are expressing as if the other person is responsible for our feelings.
+The issue with these statements is, while we are expressing our feelings, we are expressing as if the other person is responsible for our feelings.
 
-Now lets look at each one of the above said in a different way:
+Now lets look at each one of the above said in a different way -
 
-“I have a headache and I need some quiet rest. This noise is disturbing me.”“I feel irritated when you pick your nose, because I think that it is very unhygienic”.“Mummy is disappointed when you don’t finish the food, because I want you to grow up healthy and strong.”
+“I have a headache and I need some quiet rest. This noise is disturbing me”. “I feel irritated when you pick your nose, because I think that it is very unhygienic”. “Mummy is disappointed when you don’t finish the food, because I want you to grow up healthy and strong.”
 
-The difference, which appears to be subtle, is actually significant. In the first set, the speaker attributes irritation, frustration, (own feelings) etc., solely to the other person. Whereas in the second set of statements, the speaker accepts the responsibility of his or her feelings by acknowledging the thought or the need behind it.
+The difference, which appears to be subtle, is actually quite significant. In the first set, the speaker attributes his irritation, frustration, (own feelings) etc., solely to the other person. Whereas in the second set of statements, the speaker accepts the responsibility of his or her feelings by acknowledging the thought or the need behind it.
 
 When parents say, “It upsets mummy when you score low in your exams”, we are implying that the child’s actions are the cause of our unhappiness.
 
-Two important points One, in spite of child’s low marks we could have CHOSEN to be happy –in which case is the child responsible for OUR feeling?Two, we are implying that by getting low marks the child is not caring enoughfor the parents. So next time FOR THE SAKE OF PARENT’S HAPPINESS the child should get good marks! Should the child be responsible because ofits own motivation or to somehow avoid guilt?
+Two important points. One, in spite of child’s low marks we could have CHOSEN to be happy – in which case is the child responsible for OUR feeling? Two, we are implying that by getting low marks the child is not caring enoughfor the parents. So next time FOR THE SAKE OF PARENT’S HAPPINESS the child should get good marks! Should the child be responsible because ofits own motivation or to somehow avoid guilt?
 
 So instead of saying “I feel hurt when you shout like that”, can we say “I feel hurt when you shout like that because I feel I am not being respected.”
 

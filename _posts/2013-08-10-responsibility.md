@@ -3,9 +3,10 @@ layout: chapter
 title: Responsibiilty
 permalink: responsibility
 category: parent
+published: true
 ---
- 
-A mother who herself was not too well educated was quite worried that her son refused to do homework and studies. Complains poured from school and the mother tried all the tricks from bribing to punishing but to no avail. Flustered, the mother, while having no clue as to how, yet told her son that she will help in his homework and study.
+
+A mother who herself was not too well educated was quite worried that her son refused to do homework and studies. Complaints poured from school and the mother tried all the tricks from bribing to punishing but to no avail. Flustered, the mother, while having no clue as to how, yet told her son that she will help in his homework and study.
 
 Since the mother had not done schooling in her childhood and had not received formal education, she didn’t know much of what the child was learning. Thus for everything, she had many questions: What does this word mean? How is this fraction written, what is a denominator? How do you draw this diagram? What is a peninsula? And so on.
 
@@ -19,7 +20,7 @@ The logic though quite intuitive seems to elude many of us in our day-to-day eff
 
 1. Responsibility = Challenge
 
-This is what the son in the story above got when his mother inadvertently gave him the challenge of answering all her questions. This is quite commonly used motivation model in the corporate world – give people responsibility a little out of their ‘known’ reach and the challenge spurs them on! Nothing aligns positive resources better then a responsibility that comes shrouded as a challenge. Two additional points: One, all children love challenges- no TV, no bribe, no other temptation is greater than a challenge, specially one that makes them look more than their age – which is what invariably responsibility does. Two, even if the children do not meet the challenge, the whole effort still lifts child’s resources, abilities, self-esteem and confidence.
+This is what the son in the story above got when his mother inadvertently gave him the challenge of answering all her questions. This is quite commonly used motivation model in the corporate world – give people responsibility a little out of their ‘known’ reach and the challenge spurs them on! Nothing aligns positive resources better then a responsibility that comes shrouded as a challenge. Two additional points: One, all children love challenges- no TV, no bribe, no other temptation is greater than a challenge, especially one that makes them look more than their age – which is what invariably responsibility does. Two, even if the children do not meet the challenge, the whole effort still lifts child’s resources, abilities, self-esteem and confidence.
 
 2. Responsibility = Focus
 
@@ -27,13 +28,13 @@ The driver has to watch the road. When we make the troublemaker the prefect, tha
 
 3. Responsibility = Empowerment
 
-They say you can’t put a man guard outside and keep the gun with you. When we give responsibility, we give the child the power to fulfill the responsibility – we give the gun in the guard’s hand. This transaction of power is liberating to the child. It releases resources in the child and child responds with these resources, often, hitherto hidden from us. When I have the power I understand it, I learn how to use it and I grow with it. For example, if you give me the power to decide what to eat, I understand the importance of eating the right food, I learn when to eat what and how much and I grow my sense of balancing my eating habits.
+They say you can’t put a man on guard outside and keep the gun with you. When we give responsibility, we give the child the power to fulfill the responsibility – we give the gun in the guard’s hand. This transaction of power is liberating to the child. It releases resources in the child and child responds with these resources, often, hitherto hidden from us. When I have the power I understand it, I learn how to use it and I grow with it. For example, if you give me the power to decide what to eat, I understand the importance of eating the right food, I learn when to eat what and how much and I grow my sense of balancing my eating habits.
 
 Here are some guidelines on using responsibility as an omnipotent developmental tool. Omnipotent because instead of asking me where it will work, ask me where it will not work and I may need to think hard.
 
 Spot the areas where you are having the maximum issues. Think how you can give the responsibility in that scenario. One child was quite boastful, always bragging about himself. We gave him the responsibility of group manager. His first task was to find strengths of each group member and then decide how he can use these for group’s functioning. The moment his focus changed, his humbleness surfaced!
 
-Present the responsibility as something important. Even is this means you need to glamorize it a little bit (remember Tom Sawyer). One simple way is to project the task as something normally only you (an adult) can accomplish. For example asking the child to check his own work, grade it, and then sign on it.
+Present the responsibility as something important. Even if this means you need to glamorize it a little bit (remember Tom Sawyer). One simple way is to project the task as something normally only you (an adult) can accomplish. For example asking the child to check his own work, grade it, and then sign on it.
 
 Give the power completely. No point child being on the horse while you hold the reins. Too many parents stumble for this reason. One father said to his child, "You are responsible for your little brother". Then every few seconds one could hear the father, “Hold him like this”, “Don’t force him like that”, “Leave the string” and so on. Chuck back-seat driving, relax and start enjoying the lovely view of child trying to figure out the best way to deliver on the responsibility.
 
@@ -45,5 +46,3 @@ To give responsibility ask questions, ask HOW & WHAT questions: How can you do t
 Finally, how heavy the load is, depends on if it’s a burden or a responsibility. Check out how and what you give to children.
 
 Few things help an individual more than to place responsibility upon him and let him know that you trust him - Booker T. Washington
-
- 

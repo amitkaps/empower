@@ -6,12 +6,12 @@ Dear parents - the following article is based on a real conversation. Do see if 
 
 How to discover True Potential
 
-She said, "My six year old is quite shy. Even if another child is hurting him - he won't say anything. Yesterday in school somebody ate his snacks - and he came back home hungry. What do I do?”
+She said, "My six year old is quite shy. Even if another child is hurting him - he won't say anything. Yesterday in school somebody ate his snacks, and he came back home hungry. What do I do?”
 
 I replied (familiar with this most oft quoted issue), "Ask him questions"
 "Questions!" retorted mother visibly dismayed, "What kind of questions?”
 
-For example, I said, "I may ask him after he came home hungry, What did you learn from this experience?"
+For example, I said, "I may ask him after he came home hungry, what did you learn from this experience?"
 
 Now she was definitely confused, "What do you think he will answer?"
 
@@ -36,7 +36,7 @@ Then you must visit our center - where whether its two year old in the pre-schoo
 "Give me more examples of questions that one could ask," now the mother was excited.
 
 "First you have to stop doing UpStream parenting"
-"UpStream parenting - thats a new term?"
+"UpStream parenting - that's a new term?"
 
 "Most of us at some time or the other are struggling, simply because we are trying to change the child - that’s swimming against the flow - but once we align our efforts to a child's natural way of working and growing, its much less effort."
 
@@ -49,7 +49,7 @@ What will likely happen if you do that? Are those the results you want most?
 In What other ways could we solve this problem?
 What do you need to do to get where you would like to be?
 How can you do this better? Why would you like to do this better? Why was doing this work excellently so important to you?
-AND WHAT DO YOU THINK WILL HAPPEN THEN? {this can be asked as a follow-up to any string of questions for us far out into time as the child can conceive at his age.}
+AND WHAT DO YOU THINK WILL HAPPEN THEN? {this can be asked as a follow-up to any string of questions for as far out into time as the child can conceive at his age.}
 
 The mother was thinking, "I see the value of the questions - just not sure how the child will reply?"
 "The key idea is not the answer", I clarified to her, "It is the question itself. In fact we are not asking to listen to an answer - we are asking so that the child can think - right now, little later, and even much later".

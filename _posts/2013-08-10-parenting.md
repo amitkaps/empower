@@ -8,9 +8,9 @@ published: true
 
 Whenever you think, do you think in terms of questions or in terms of statements? Have you ever asked a question without first thinking for possible answers? When somebody tells you something, its possible to ignore it. But when somebody asks you a question, can your mind ignore thinking about it? Why is this so?
 
-Ladies and Gentleman, Mothers and Fathers, presenting the ultimate panacea,the ultimate disciplining, learning and teaching tool, an amazing language that leads to higher intelligence. A language common to all great thinkers and leaders,from Socrates to Einstein.
+Ladies and Gentleman, Mothers and Fathers, presenting the ultimate panacea,the ultimate disciplining, learning and teaching tool, an amazing language that leads to higher intelligence. A language common to all great thinkers and leaders, from Socrates to Einstein.
 
-Chuck out the useless “T” language – tell them, tell them, tell them, and then wonder why they don’t get it! Tune in the new “Q” language – ask them, let them ponder, decide, answer and you would wonder why you didn’t do more of this before.
+Chuck out the useless “T” language – tell them, tell them, tell them, and then wonder why they don’t get it! Tune in to the new “Q” language – ask them, let them ponder, decide, answer and you would wonder why you didn’t do more of this before.
 
 Child doesn’t go to sleep easily: Try asking questions, “Why do you think it’s important to take a nap? How will you benefit from a good sleep? What can you (or I) do so that you can sleep easily?”
 
@@ -18,7 +18,7 @@ Child doesn’t wash hands before eating: Try Asking questions, “Why do you th
 
 Child insists on watching too much TV: Try asking questions, “What do you want to become in life? How will you become that? What all you need to do for that? How much will TV help in that? What else you need to do that will help you?”
 
-Child gets low marks in a test: Try asking questions, “What areas of your performance are you most pleased with? In what ways are you looking forward to enhancing your performance during the next test or month or year? What kind of help you need?”
+Child gets low marks in a test: Try asking questions, “What areas of your performance are you most pleased with? In what ways are you looking forward to enhancing your performance during the next test or month or year? What kind of help do you need?”
 
 Child plays with dangerous things - plug points, knifes, glass items etc: Try asking questions, "Why do we prohibit you from playing with this? In what way can these things hurt you? Have you seen anybody getting hurt by these? By what age will you be able to use it?"
 
@@ -26,7 +26,7 @@ Child doesn’t do homework on time: Try asking questions, “How can we make ho
 
 Child doesn’t understand a portion: Try asking questions, "What have you understood? What does it look similar to, different from? Which part was easy for you to get? Will you like to understand this yourself? Are you sure you need (my) help?"
 
-Obviously rhetorical questions like "who did this?" "Why can't you improve?", "how can you get marks like this" are too negative to yield any results.
+Obviously rhetorical questions like "who did this?" "Why can't you improve?", "how can you get marks like this?" are too negative to yield any results.
 
 We are talking of questions that make the child think. Hence we need to take judgment out of questions, make them non-threatening, and make them positive. The idea is not to judge the child's knowledge or intelligence by the answer.The idea is to let the intelligence and knowledge grow by self-exploration.
 
@@ -48,7 +48,7 @@ Questions don’t focus on mistakes; they look forward, not backwards. You have 
 
 Any thinking they do, further stimulates the brain to think, to become alive.That is a good feeling, which usually multiplies.
 
-It makes them teller, and you listener.
+It makes them the teller, and you the listener.
 
 IT IS SO SIMPLE TO DO.
 

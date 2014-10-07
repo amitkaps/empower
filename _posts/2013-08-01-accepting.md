@@ -50,5 +50,5 @@ too much & also avoid using negative words) I've noticed reasonably good change
 in him from the last 2 - 3 days. I've explained the concept of 'Lovely labels' and he
 liked it. I'm preparing some of them and I'm sure that'll definitely help to change him.
 
-Our concluding comments: We can do wonders if we follow this maxim:                   
+Our concluding comments: We can do wonders if we follow this maxim:                    
 "Expect Less, Accept More" 

@@ -35,7 +35,7 @@ Let me sum this up with a (trademark) formula called FAIR:
 
 ‘I’ for Interest – cater to my interest and distractions are no more interesting.
 
-‘R’ for Rewards – if I get sensitive praising and encouragement, I am most eager.
+‘R’ for Rewards – if I get sensitive praising and encouragement, I am most eager. 
 
 Remember concentration is a habit of mind. One needs to help children develop it (see Lovely Labels below). Without expecting it as something natural, let’s put effort in providing them opportunities to do so.
 

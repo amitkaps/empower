@@ -32,6 +32,6 @@ Some suggestions:
 
 4. Remove yourself from the scene. Believe it or not, many fights happen because you are present. They want to involve you and get your attention or feel important by your taking side or both. Your reluctance to get involved leads them to resolve it themselves and leaves you stress free.
 
-5. At a quieter time either otgether or individually listen to thier feelings and thoughts about the issue. Ask open questions to make them explore themselves more (and not to give gyan). 
+5. At a quieter time either together or individually listen to thier feelings and thoughts about the issue. Ask open questions to make them explore themselves more (and not to give gyan). 
 
 6. Use humor. Laughter is the best medicine. If they are laughing, they can’t be fighting! One father would mimic a TV reporter. He would offer the mike (his thumb) to the children “The action reporter here. Who would like to be the first to speak into my camera and give our audience your version of what is happening here?” Once the children have told their story (amidst laughter) he would end by turning towards the imaginary camera, “Viewers you got the first hand report of the problem here. Tune in tomorrow to see how these brilliant children solve this problem. Ta Da!”

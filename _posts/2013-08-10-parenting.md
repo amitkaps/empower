@@ -44,16 +44,10 @@ They not only own the choice, they own the consequence.
 
 They learn to think creatively, values take ground, concepts get clear.
 
-Questions don’t focus on mistakes; they look forward, not backwards. You have to avoid “Why” questions.
+Questions don’t focus on mistakes; they look forward, not backwards. So do avoid “Why” questions.
 
 Any thinking they do, further stimulates the brain to think, to become alive.That is a good feeling, which usually multiplies.
 
 It makes them the teller, and you the listener.
 
-IT IS SO SIMPLE TO DO.
-
-Under "Genie Worth-it" below we provide a string of questions that can actually change the whole atmosphere (and your relationship) in your home. Try them.
-
-Also when the child finally answers the question by “I don’t know" – chances are the child has opened a window for you to provide an answer. Let’s not be greedy here – so keep the answer short 
-
-A good question is never answered. It is not a bolt to be tightened into place but a seed to be planted and to bear more seeds towards the hope of greening the landscape of mind.” (John Ciardi)
+IT IS SO SIMPLE TO Q.
